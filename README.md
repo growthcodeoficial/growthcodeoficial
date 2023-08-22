@@ -8,7 +8,7 @@ GrowthCode/README.md
 - 📫 How to reach us:
     - 🎥 [YouTube](https://www.youtube.com/@growthcodeoficial)
     - 🏢 [LinkedIn](https://www.linkedin.com/company/growthcodeoficial/)
-    - 🎵 [TikTok](https://www.tiktok.com/@growthcodeoficial) (username change available on 17/08/2023)
+    - 🎵 [TikTok](https://www.tiktok.com/@growthcodeoficial) 
     - 📸 [Instagram](https://instagram.com/growthcodeoficial)
     - 👥 [Facebook](https://www.facebook.com/growthcodeoficial)
     - 🧵 [Threads](https://www.threads.net/@growthcodeoficial)
